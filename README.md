@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Kaszioq
 - 👀 I’m interested in Physics, Astronomy, Math
-- 📫 How to reach me - mail : kubakaszewskisl@gmail.com
+- 📫 How to reach me - mail : ?
